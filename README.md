@@ -22,3 +22,5 @@
 * thinking ... in a quiet place about something productive, i can do this for hours, i love this thing about myself
 
 * reading something productive feels good
+
+* having particular experience on my CV (e.g. synthetic biology, cancer genomics) become useful for the (hopefully near) future --> amazing, amazing feeling
