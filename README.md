@@ -27,3 +27,5 @@
 * reading something productive feels good
 
 * having particular experience on my CV (e.g. synthetic biology, cancer genomics) become useful for the (hopefully near) future --> amazing, amazing feeling
+
+* me ... i feel good
