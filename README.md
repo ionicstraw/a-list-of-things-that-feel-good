@@ -30,4 +30,6 @@
 
 * having particular experience on my CV (e.g. synthetic biology, cancer genomics) become useful for the (hopefully near) future --> amazing, amazing feeling
 
+* putting ugly ass losers in their place, as i should have done in feb 2017, but now is also fun bc you can laugh with me 😂
+
 * me ... i feel good
