@@ -32,4 +32,6 @@
 
 * putting ugly ass losers in their place, as i should have done in feb 2017, but now is also fun bc you can laugh with me 😂
 
+ * telling those epic losers to fk off in a voice note felt so good, i can get really ghetto tho, that was me really holding back, u have no idea, i could have gone on for an hour atleast, saving that for court dont wanna give away too much
+
 * me ... i feel good
