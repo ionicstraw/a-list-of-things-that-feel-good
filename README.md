@@ -35,4 +35,6 @@
  * telling those epic losers to fk off in a voice note felt so good, i can get really ghetto tho, that was me really holding back, u have no idea, i could have gone on for an hour atleast, saving that for court dont wanna give away too much
  * saying "i/you/we dont know you" was inspired by [this](https://www.youtube.com/watch?v=XMWZQrkdtew) which has its own [wikipedia page](https://en.wikipedia.org/wiki/I_don%27t_know_her) rotfl -- gotta put people in their place
 
+* i think, i want to make a part 2, give me a couple of weeks, let me put my notes together, this felt good, like a weight off my shoulders i get to clear the air like i dont know these ugly ass pathetic people. itll be good, itll be really good, i know what to say and what not to say. these people are fking losers and need to be put in their place and i volunteer to do it, that's fine by me.
+
 * me ... i feel good
