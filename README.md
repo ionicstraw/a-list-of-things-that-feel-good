@@ -33,5 +33,6 @@
 * putting ugly ass losers in their place, as i should have done in feb 2017, but now is also fun bc you can laugh with me 😂
 
  * telling those epic losers to fk off in a voice note felt so good, i can get really ghetto tho, that was me really holding back, u have no idea, i could have gone on for an hour atleast, saving that for court dont wanna give away too much
+ * saying "i/you/we dont know you" was inspired by [this](https://www.youtube.com/watch?v=XMWZQrkdtew) which has its own [wikipedia page](https://en.wikipedia.org/wiki/I_don%27t_know_her) rotfl -- gotta put people in their place
 
 * me ... i feel good
