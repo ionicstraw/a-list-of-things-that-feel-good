@@ -38,3 +38,5 @@
 * i think, i want to make a part 2, give me a couple of weeks, let me put my notes together, this felt good, like a weight off my shoulders i get to clear the air like i dont know these ugly ass pathetic people. itll be good, itll be really good, i know what to say and what not to say. these people are fking losers and need to be put in their place and i volunteer to do it, that's fine by me.
 
 * me ... i feel good
+
+* talking about someone/group of people that's true -- essentially talking sht about them, but its all **true** and **they deserve it** 😂 that feels amazing, putting someone in their place
