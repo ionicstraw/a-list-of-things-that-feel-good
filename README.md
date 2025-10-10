@@ -40,3 +40,5 @@
 * me ... i feel good
 
 * talking about someone/group of people that's true -- essentially talking sht about them, but its all **true** and **they deserve it** 😂 that feels amazing, putting someone in their place
+
+* checking boxes on an application bc of my hard work, blood, sweat and TEARS
